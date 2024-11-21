@@ -17,6 +17,6 @@ Este proyecto no nesesita una instalacion previa. Simplemente habre la carpeta
 
 ## Contratacion
 
-Si quieres contratarme solo escribe a 1451309@senati.pe para consultas.
+Si quieres contratarme solo escribe a arthur345rodriguez@gmail.com para consultas.
 
 
